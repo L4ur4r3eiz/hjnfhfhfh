@@ -1,2 +1,2 @@
-# site feito noa pequenos talentos 
+# site feito no pequenos talentos 
 yttukmtgkmjhghhngflk
